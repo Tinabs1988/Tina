@@ -1,1 +1,1 @@
-# Tina
+Passionate researcher
